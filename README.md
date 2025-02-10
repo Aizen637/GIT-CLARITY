@@ -2,4 +2,4 @@
 GIT-CLARITY
 
 
-Hey, Suvam have no clarity.Please god give hime some clarity
+Hey, Suvam have no clarity.Please god give him some clarity
